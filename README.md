@@ -1,0 +1,2 @@
+# premium-mill-head-001-mill-head-tram-nod-adjust-cr
+Stop second-guessing your mill head alignment. Eliminate costly rework and scrapped parts with a dedicated system that turns tram and nod adjustments into a repeatable, documented process.  The Mill Head Tram &amp; Nod Adjust Craft Hub is the only Notion template built specifically for machinists who need a centralized, smart hub to log every adjustmen
